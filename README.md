@@ -7,7 +7,7 @@
 
 - 👯 I’m interested in **programation, accounting**
 
-- ⚡ Fun fact **I'm delulu**
+- ⚡ Fun fact **I'm learning**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
